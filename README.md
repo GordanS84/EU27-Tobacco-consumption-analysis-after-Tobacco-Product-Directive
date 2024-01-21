@@ -11,5 +11,5 @@ Adopted in 2014, and applicable for most of its provision as of May 2016, the To
 
 **DEVELOPMENT 2014-2021**
 
-Thanks to the Directive, the EU has witnessed steady decreases in smoking rates and tobacco use. However, there have been other concerns emerging since, most notably the introduction of novelty products such as e-cigarettes and heated tobaccco products as well as rise of illicit trade in certain memeber states.  
+Thanks to the Directive, the EU has witnessed steady decreases in smoking rates and tobacco use. However, there have been other concerns emerging since, most notably the introduction of novelty products such as e-cigarettes and heated tobacco products as well as rise of illicit trade in certain member states.  
 
