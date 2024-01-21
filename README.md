@@ -3,7 +3,7 @@
 
 **INITIATIVE**
 
-With 27% of all cancers attributed to its use, tobacco is the single largest avoidable health risk in the EU. Europe's Beating Cancer Plan, a key pillar of the European Health Union aims at creating a ‘Tobacco-free Generation' by 2040. To reach this highly ambitious goal a whole available arsenal of tobacco control tools at all levels needed to be mobilized.
+With 27% of all cancers attributed to its use, tobacco is the single largest avoidable health risk in the EU. Europe's Beating Cancer Plan, a key pillar of the European Health Union aims at creating a ‘Tobacco-free Generation', where less than 5% of people use tobacco by 2040. To reach this highly ambitious goal a whole available arsenal of tobacco control tools at all levels needed to be mobilized.
 
 **BACKGROUND**
 
